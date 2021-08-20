@@ -1,2 +1,2 @@
-Kourosh Nomanpour
-nomanpour@gmail.com
+## Kourosh Nomanpour
+Contact me at nomanpour@gmail.com
